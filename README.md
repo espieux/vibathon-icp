@@ -1,4 +1,4 @@
-# AAAA🧪🔥 Ultimate IC Vibe Coding Template
+# 🧪🔥 Ultimate IC Vibe Coding Template
 
 ## 👋 Welcome to the Ultimate IC Vibe Coding Template!
 
